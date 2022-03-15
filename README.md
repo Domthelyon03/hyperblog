@@ -13,7 +13,7 @@ A lit blog for our website [Kings soul shoes]()
 * Accesores
 * NFTs
 
-If you have qustions you can go to our website and tell us. This web site was disinged to breing you the most exotic and rare clothes. We always have what you want. WARNING: this video might by a troll >[**unknowen video**](https://youtu.be/nC8QxESKvaw).
+If you have qustions you can go to our website and tell us. This web site was disinged to breing you the most exotic and rare clothes. We always have what you want. WARNING: this video might be a troll >[**unknowen video**](https://youtu.be/nC8QxESKvaw).
 
 CEOs: Dominick Tavera, Xavier Hodge, Sean William Buerk
 
