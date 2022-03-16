@@ -1,6 +1,6 @@
 # LIMITLESS 
 A lit blog for our website [Kings soul shoes]()
-> In Kings soul shoes, we sell YEEZY, JORDAN, JORDAN 1, JORDAN traves scott, AIR JORDAN, JORDAN 1 Retro, LOUIS VUITTON, GUCCI, VERSACHI, ROLEX, SUPREAM, TAGUER, HOTTOYS, FEAR OF GOD, Christan Lubotin, PLAYSTAION, XBOX, AilenWare, Speakers, Games, Sunglasses, Colectiblas, Drones, and NFTs.
+> In Kings soul shoes, we sell YEEZY, JORDAN, JORDAN 1, JORDAN traves scott, AIR JORDAN, JORDAN 1 Retro, LOUIS VUITTON, GUCCI, VERSACHI, ROLEX, SUPREAM, TAGUER, HOTTOYS, FEAR OF GOD, Christan Lubuotin, PLAYSTAION, XBOX, AilenWare, Speakers, Games, Sunglasses, Colectiblas, Drones, and NFTs.
 
 
 ## we will always bring to you the most EXOTIC, RARE and high qualati:
